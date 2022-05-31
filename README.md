@@ -2,4 +2,4 @@
 random Quote
 
 
-Visit https://celebrated-travesseiro-8af44a.netlify.app/
+Visit https://incomparable-scone-f74a1e.netlify.app/
